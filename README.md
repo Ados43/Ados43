@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ados43 or Aidan L.
+- 👀 I’m interested in gaming, programming, guitar and soccer.
+- 🌱 I’m currently studying a dual Bachelors degree in IT and Business. Majoring in Software Development and Finance. 
+- 💞️ I’m looking to collaborate on any projects that will help me start my career in Software Developement.
+- 📫 You can reach me through my discord, ADOS#9998.
